@@ -8,11 +8,14 @@
 
 [♪new strawpage](https://gyaruo.straw.page)
 
+
 [♪old strawpage](https://cherrybxxch.straw.page)
 
 [♪atabook](https://heartz.atabook.org)
 
 ♪discord - minatopilled
+
+
 
 <!--
 **CHERRYBXXCH/CHERRYBXXCH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
