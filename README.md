@@ -1,6 +1,6 @@
 ## ♡ HEARTZ / RY ♡ 
 ![](https://files.catbox.moe/q4ko23.gif)
-
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=CHERRYBXXCH)
 
 ![](https://files.catbox.moe/71fdrc.gif)
 
