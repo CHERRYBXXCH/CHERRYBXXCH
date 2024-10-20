@@ -1,4 +1,5 @@
-## Hi there 👋
+## ♡ HEARTZ / RY ♡ 
+![](https://files.catbox.moe/71fdrc.gif)
 
 <!--
 **CHERRYBXXCH/CHERRYBXXCH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
