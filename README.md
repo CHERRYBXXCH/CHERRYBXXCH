@@ -11,7 +11,6 @@
 
 [♪old strawpage](https://cherrybxxch.straw.page)
 
-[♪atabook](https://heartz.atabook.org)
 
 ♪discord - minatopilled
 
