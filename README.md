@@ -6,11 +6,6 @@
 
 *“ Even if I look into my heart, I can never show you everything . „* 
 
-[♪new strawpage](https://gyaruo.straw.page)
-
-
-[♪old strawpage](https://cherrybxxch.straw.page)
-
 
 ♪discord - minatopilled
 
